@@ -1,6 +1,6 @@
 # 小鲤鱼机场官网地址
 
-最新地址：[xiaoliyu.me](https://www.xiaoliyu.me/#/register?code=QYzM5EC7)
+最新地址：[xiaoliyu.me](https://www.xiaoliyu.me/#/register?code=AKk7et4d)
 
 ## 小鲤鱼介绍
 
